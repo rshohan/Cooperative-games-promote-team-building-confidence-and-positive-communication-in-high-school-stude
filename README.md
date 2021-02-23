@@ -12,6 +12,9 @@ About Aaron Dungca, Needham Teacher
 Aaron Dungca, a former wellness teacher, coach, and camp manager with 8 years experience combating summer learning loss and building social-emotional intelligence in children.  According to his experiences, children need more impactful opportunities that compete with the technological readiness of smart devices. Museums, libraries, parks, camps, and family togetherness are some of the stages children can obtain high potency content outside of social media platforms with credibility and at low to no cost.  
 
 Please visit websites and social media of Aaron Dungca Needham Teacher:
+
 AaronDungca.com
+
 Aaron-Dungca.com
+
 AaronDungca.org
